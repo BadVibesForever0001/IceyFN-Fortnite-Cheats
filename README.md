@@ -1,2 +1,3 @@
 # IceyFN-Fortnite-Cheats
-Join Our Discord For Free Cheats and Spoofers.
+ - https://discord.gg/tWT4ZTQcET -
+ - Join For Free Fortnite Cheats and Spoofers. ^^
